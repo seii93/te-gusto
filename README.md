@@ -1,2 +1,2 @@
 # te-gusto
-Yo sabía que si te gistaba! Entonces pa cuando salimos
+Yo sabía que si te gustaba! Entonces pa cuando salimos
